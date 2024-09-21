@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @r-juzzi!!
-- 👀 I’m interested in... Cooking and baking, Archery, Sports, and a lot more!!
+- 👀 I’m interested in... Cooking and baking, Archery, Sports, Girls, Masc Women and a lot more!!
 - 🌱 I’m currently learning... History!!
 - 💞️ I’m looking to collaborate on... Death Note!!
 - 📫 How to reach me... Just DM me on my Discord: ryein_.!!
